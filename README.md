@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jcg001
-- Doing my doctorate and hating every second lol
+- Doing my doctorate and hating every second of it lol
 
 
 
